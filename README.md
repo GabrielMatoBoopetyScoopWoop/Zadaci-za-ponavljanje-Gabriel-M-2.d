@@ -1,0 +1,1 @@
+# Zadaci-za-ponavljanje-Gabriel-M-2.d
